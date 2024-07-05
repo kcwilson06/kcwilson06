@@ -11,7 +11,7 @@ I am looking to expand my knowledge in the use of Github. I am excited to see th
 - An executive-level administrative professional with a proven record of accomplishment in various industries, most recently overseeing the office and fiscal operations of a medium-sized non-profit organization (501(c)(3) exempt status).
 - In possession of the many skills required to succeed in a fast paced, changing environment: confidence in my abilities, calmness in high energy situations, and forward-looking resolutions to immediate or long-term stressors.
 - Equally effective working as a team player or in an individual capacity with minimal supervision.
-- Posses an Associate of Science degree in Engineering Sciences and graduated with Honors.
+- Possess an Associate of Science degree in Engineering Sciences. Graduated with Honors.
   
 ## My work history overview:
 - Accomplished administrative professional with 20 years’ experience in office management, data management, payroll processing, and human resources with increasing supervisory and fiscal responsibilities.
